@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Trino47
+- 👋 Hi, I’m @Samiul47
 - 👀 I’m interested in ... Digital Marketing
 - 🌱 I’m currently ... 🌐 Digital Marketer | 📈 Data-Driven Strategist | 🎯 AI in Marketing Advocate
 - 💞️ I’m looking to collaborate on ... A strong digital marketing team
